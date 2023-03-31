@@ -1,4 +1,4 @@
-### Her is what Im working on! 👋
+### Here is what Im working on! 👋
 
 
 Here are some ideas to get you started:
